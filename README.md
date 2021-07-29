@@ -1,0 +1,1 @@
+# opencore-ideapad_310_14IKB
